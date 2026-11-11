@@ -1,0 +1,2 @@
+# mojavedomostnakarta
+memory card
